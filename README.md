@@ -1,4 +1,2 @@
-# jackFes2022Endroll
-
-### overview
-https://yutteee.github.io/jackFes2022Endroll/
+# Free AI at api.airforce
+https://discord.gg/AJDsM7jtbq
